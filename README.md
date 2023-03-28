@@ -1,5 +1,5 @@
-### Hi there 👋
-# Welcome 👋 
+
+# Welcome👋🏾 
 ## I am Omar (He/Him) - Software Engineer
 
 
